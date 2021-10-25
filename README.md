@@ -1,3 +1,0 @@
-# vijverdal-iq
-
-herculeshof
